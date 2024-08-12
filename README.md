@@ -1,16 +1,13 @@
-## Hi there 👋
+alex / ace he/him agender autistic 18
 
-<!--
-**deathcardace/deathcardace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+***
 
-Here are some ideas to get you started:
+interests: pokemon, one piece, overwatch, splatoon, dungeon meshi, devils candy, witch hat atelier
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+dni: fnf / southpark / dsmp fans, proshippers, endos & irls, ship n with the bw protags (n is an adult), under 16
+
+int: pokemon + one piece + overwatch fans!!!!! (especially if you like mystery dungeon, rangers, and oras), or if we share interests 
+
+ ***
+ 
+i am mostly off tab please whisper me if you want to talk to me ^_^
