@@ -1,4 +1,5 @@
-alex / ace he/him agender autistic ![ace pixel](https://file.garden/ZbvTeWMdBBpQCORe/one%20piece/ace/ace2.gif) 18
+alex / ace he/him 19
+nonbinary autistic ![ace pixel](https://file.garden/ZbvTeWMdBBpQCORe/one%20piece/ace/ace2.gif)
 
 ***
 
