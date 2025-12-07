@@ -1,4 +1,4 @@
-alex / ace he/him 20
+alex / ace he / him 20
 nonbinary autistic ![ace pixel](https://file.garden/ZbvTeWMdBBpQCORe/one%20piece/ace/ace2.gif)
 
 ***
