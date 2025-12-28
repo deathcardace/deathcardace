@@ -3,7 +3,7 @@ nonbinary autistic ![ace pixel](https://file.garden/ZbvTeWMdBBpQCORe/one%20piece
 
 ***
 
-interests: pokemon, pop'n music, one piece, vsynths, overwatch, splatoon, dungeon meshi, devils candy, witch hat atelier
+interests: pokemon, pop'n music, one piece, vsynths, overwatch, mp100, splatoon, dungeon meshi, devils candy, witch hat atelier
 
 int: pokemon + pop'n + overwatch fans!!!!! (especially if you like mystery dungeon, rangers, and oras), or if we share interests 
 
